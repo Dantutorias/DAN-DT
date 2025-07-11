@@ -1,2 +1,4 @@
 # DAN-DT
-NOVA ATUALIZAÇÃO 
+*versão:v22.26
+*NOVA ATUALIZAÇÃO GB EXTREME UNICÓRNIO DT
+*DOWNLOAD CANAL WA https://whatsapp.com/channel/0029Vb6TjcB3wtbFqbTO1W42
